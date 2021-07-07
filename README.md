@@ -8,3 +8,5 @@ https://drive.google.com/file/d/1Y-1Hgb8N0SQkThnrv_WV9Qim7fIJIizT/view
 
 **Link to the video showing the DOF :**
 https://drive.google.com/file/d/1Rs0Vo69NuCyeZw27jOoBYG4NOPHB8dDe/view
+
+![120110848-f2526380-c18c-11eb-8bac-39585128fa32](https://user-images.githubusercontent.com/60110766/124727093-04fa4e00-df2c-11eb-84fc-ad46b573eda7.jpeg)
